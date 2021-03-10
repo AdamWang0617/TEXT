@@ -1,0 +1,2 @@
+# TEXT
+for Adam learning
